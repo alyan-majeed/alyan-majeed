@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @alyan-majeed
 - 👀 I’m interested in Accounts &Audit
 - 🌱 I’m currently learning Charted Accountancy 
-- 💞️ I’m looking to collaborate on auditot companies 
+- 💞️ I’m looking to collaborate on audit companies.
